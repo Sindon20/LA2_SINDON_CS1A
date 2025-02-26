@@ -1,1 +1,0 @@
-# LA2_SINDON_CS1A
